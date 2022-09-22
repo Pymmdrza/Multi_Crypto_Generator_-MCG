@@ -1,3 +1,5 @@
+![Multi Crypto Generator](https://github.com/Pymmdrza/Multi_Crypto_Generator_-MCG-GUI-/raw/mainx/PostMCG850.jpg 'Multi Crypto Generator')
+
 # Multi Crypto Generator [MCG]
 
 ![MCG - Multi Crypto Generator V1](https://raw.githubusercontent.com/Pymmdrza/Multi_Crypto_Generator_-MCG-GUI-/mainx/MultiCryptoGenerator_Software.png 'MCG - Multi Crypto Generator V1')
