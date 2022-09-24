@@ -46,14 +46,14 @@ Creating a wallet or private key has been difficult for some users. And many peo
 
 [+][Direct Link ~ x64 & x86] [ MULTI CRYPRO GENERATOR [MCG] (Winrar exe) ](https://mmdrza.com/dl/MULTICRYPTOGENERATOR.exe)
 
-[-][x64 & x86 | exe File/ Winrar] Mirror Link 2 :[ MULTICRYPTOGENERATOR.exe ](https://workupload.com/file/2MqYFxKj69D)
+[+][x64 & x86 | exe File/ Winrar] Mirror Link 2 :[ MULTICRYPTOGENERATOR.exe ](https://workupload.com/file/2MqYFxKj69D)
 
-[-][x64 & x86 | zip File/Archive zip] Mirror Link 2 :[ MULTICRYPTOGENERATOR.zip ](https://workupload.com/file/QMyyrUPG5Ch)
+[+][x64 & x86 | zip File/Archive zip] Mirror Link 2 :[ MULTICRYPTOGENERATOR.zip ](https://workupload.com/file/QMyyrUPG5Ch)
 
-[-][x64 & x86 | exe File/ Easy Install Setup] Mirror Link 2 :[ MCG Winrar Exe ](https://workupload.com/file/jPs9qTTYmEd) 
+[+][x64 & x86 | exe File/ Easy Install Setup] Mirror Link 2 :[ MCG Winrar Exe ](https://workupload.com/file/jPs9qTTYmEd) 
 
-[-][x64 & x86 | exe File/ Winrar] Mirror Link3 (Firebase Google) : [ MULTICRYPTOGENERATOR (Winrar).exe ](https://firebasestorage.googleapis.com/v0/b/mmdrza-2dbc3.appspot.com/o/MULTICRYPTOGENERATOR.exe?alt=media&token=d92d935c-2acb-4063-a02d-26f0b1c60e2d)
+[+][x64 & x86 | exe File/ Winrar] Mirror Link3 (Firebase Google) : [ MULTICRYPTOGENERATOR (Winrar).exe ](https://firebasestorage.googleapis.com/v0/b/mmdrza-2dbc3.appspot.com/o/MULTICRYPTOGENERATOR.exe?alt=media&token=d92d935c-2acb-4063-a02d-26f0b1c60e2d)
 
-[-][x64 & x86 | zip File/Archive zip] Mirror Link3 (Firebase Google) : [ MULTICRYPTOGENERATOR.zip ](https://firebasestorage.googleapis.com/v0/b/mmdrza-2dbc3.appspot.com/o/MULTICRYPTOGENERATOR.zip?alt=media&token=c194d100-dcb2-4712-b5c2-49a8e72ba3aa)
+[+][x64 & x86 | zip File/Archive zip] Mirror Link3 (Firebase Google) : [ MULTICRYPTOGENERATOR.zip ](https://firebasestorage.googleapis.com/v0/b/mmdrza-2dbc3.appspot.com/o/MULTICRYPTOGENERATOR.zip?alt=media&token=c194d100-dcb2-4712-b5c2-49a8e72ba3aa)
 
-[-][x64 & x86 | exe File/ Easy Install Setup] Mirror Link3 (Firebase Google) : [ MCG Easy Setup .exe ](https://firebasestorage.googleapis.com/v0/b/mmdrza-2dbc3.appspot.com/o/Setup-MCG.exe?alt=media&token=273295b3-bae5-451b-83c4-b8fd0039dc49)
+[+][x64 & x86 | exe File/ Easy Install Setup] Mirror Link3 (Firebase Google) : [ MCG Easy Setup .exe ](https://firebasestorage.googleapis.com/v0/b/mmdrza-2dbc3.appspot.com/o/Setup-MCG.exe?alt=media&token=273295b3-bae5-451b-83c4-b8fd0039dc49)
