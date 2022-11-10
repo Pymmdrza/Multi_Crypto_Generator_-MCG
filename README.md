@@ -35,9 +35,7 @@ Creating a wallet or private key has been difficult for some users. And many peo
 – Generated Private Key And QTUM Address .
 
 ---
-Video Of Working With MCG (Multi Crypto Generator) On Youtub :
 
-[![Video Of Working With MCG (Multi Crypto Generator)](https://img.youtube.com/vi/yD-_kCeRYpI/0.jpg)](https://www.youtube.com/watch?v=yD-_kCeRYpI)
 
 
 ---
